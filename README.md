@@ -10,8 +10,8 @@
 
 ![image](SemiconductorApplications6.JPG)
 
-![image](EthicsandExcellence.JPG)
+![image](EthicsandExcellence.png)
 
-![image](USCopyrightCertificate.JPG)
+![image](USCopyrightCertificate.png)
 
 Additional details reference 
