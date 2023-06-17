@@ -4,8 +4,6 @@
 
 ![image](SemiconductorApplications2.JPG)
 
-![image](SemiconductorApplications3.JPG)
-
 ![image](SemiconductorApplications4.JPG)
 
 ![image](SemiconductorApplications5.JPG)
